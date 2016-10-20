@@ -1,9 +1,9 @@
 #Sarah Rose Battles
 
-![I'm on the right side of the picture in blue](https://buildulc.files.wordpress.com/2016/08/13631623_10107861101765980_624904406728762073_n.jpg?w=474)
+![I'm on the right side of the picture in blue](https://buildulc.files.wordpress.com/2016/08/13631623_10107861101765980_624904406728762073_n.jpg?w=474)  
 That's me on the right of the picture in blue.
 
-###Find me at
+###Find Me at
 
 [LinkedIn](www.linkedin.com/in/sarah-rose-battles-b9333773)
 
